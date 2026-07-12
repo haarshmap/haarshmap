@@ -1,1 +1,1 @@
-![FETO](https://i.pinimg.com/1200x/70/1a/b7/701ab7f0f2fafcfea353d96871252692.jpg)
+![FETO](https://safebooru.org//samples/1091/sample_d6127091c51512b8ebab66a386cac417bc1584f0.jpg?6901245)
